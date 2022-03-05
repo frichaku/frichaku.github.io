@@ -1,1 +1,0 @@
-# frichaku.github.io
